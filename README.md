@@ -1,0 +1,1 @@
+# Shopping__Trend__Analysis
